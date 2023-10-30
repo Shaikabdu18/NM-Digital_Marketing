@@ -1,6 +1,6 @@
 Brand Name:SA'S Clothing
 
-Blog Link:https://www.blogger.com/u/1/blog/post/edit/1730313769499983771/2470144502031851596
+Blog Link:https://sasclothdesign.blogspot.com/2023/10/sas-clothing.html
 
 Facebook Page URL:https://www.facebook.com/profile.php?id=61550469351907
 
